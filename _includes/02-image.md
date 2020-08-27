@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.intelligentliving.co%2Fdmt-depression-anxiety&psig=AOvVaw0YOK3PaZsMXZoTzXQG6n7C&ust=1598614936372000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCICVzu2mu-sCFQAAAAAdAAAAABAD
